@@ -7,7 +7,7 @@ i was in denial
 surely not a git
 
 alas its true
-i'd spent my days
+id spent my days
 accusing others of gittishness
-finally i'd realised
+finally id realised
 time to mend my ways
